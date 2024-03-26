@@ -1,0 +1,5 @@
+- Hi, I’m @Imizel
+- I’m interested in suffering
+- I’m currently learning A+ cert skills
+- I’m looking to collaborate on anything I can help with.
+- How to reach me: just send me a message
